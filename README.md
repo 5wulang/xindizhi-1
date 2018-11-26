@@ -1,6 +1,6 @@
 ！️！️五狼-男人帮-在线地址发布！️！️
 
-⭐️👉【地址一】：http://www.5lang.xyz
+⭐️👉【地址一】：http://www.gogo1.xyz
 
 ⭐️👉【地址二】：http://www.5wlang.xyz
 
@@ -13,6 +13,8 @@
 ⭐️👉【地址六】：http://www.gonr.xyz
 
 ⭐️👉【地址七】：http://www.goonr.xyz
+
+⭐️👉【地址八】：http://wolang.xyz
 
 ！️重要提醒！️请立即收藏本页面，避免走丢！
 
