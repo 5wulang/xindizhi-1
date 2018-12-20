@@ -10,7 +10,7 @@
 
 ⭐️👉【地址五】：http://www.55lang.xyz
 
-⭐️👉【地址六】：http://www.gonr.xyz
+⭐️👉【地址六】：http://www.gonr3.com  ⭐️👉【地址六】：http://www.gonr.xyz
 
 ⭐️👉【地址七】：http://www.goonr.xyz
 
