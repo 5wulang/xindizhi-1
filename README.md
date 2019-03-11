@@ -8,13 +8,13 @@
 
 ⭐️👉【地址四】：http://www.5dl.xyz
 
-⭐️👉【地址五】：http://www.55lang.xyz
+⭐️👉【地址五】：http://www.55langb.com
 
 ⭐️👉【地址六】：http://www.gonr3.com  ⭐️👉【地址六】：http://www.gonr.xyz
 
 ⭐️👉【地址七】：http://www.goonr.xyz
 
-⭐️👉【地址八】：http://wolang.xyz
+⭐️👉【地址八】：http://wolang1.com
 
 ⭐️👉【458导航】：http://458x.xyz 
 ⭐️👉【458导航】：http://www.458fl.com 
